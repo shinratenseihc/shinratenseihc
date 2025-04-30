@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @shinratenseihc
 - 👀 I’m interested in modding
 - 🌱 I’m currently learning, Im a real noob
-- 💞️ I’m looking to collaborate on the game SPT 
 - 📫 How to reach me : On discord  : shinratensei
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Im 40 and Im a hardcore producer
